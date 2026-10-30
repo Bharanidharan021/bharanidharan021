@@ -1,4 +1,4 @@
-# ⚡ Hi, I'm [Your Name]!
+# ⚡ Hi, I'm BHARANIDHARAN G
 
 ### 👨‍💻 Second-Year Electronics & Communication Engineering Student | Aspiring Engineer
 
